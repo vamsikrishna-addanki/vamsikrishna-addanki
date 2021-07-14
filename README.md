@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vamsikrishna-addanki
-- 👀 I’m interested in learning anything.
+- 👀 At present learning everything 😄 .
 - 📫 How to reach me -> vamsikrishna2907@gmail.com ...
 
 <!---
